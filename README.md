@@ -1,1 +1,1 @@
-Landi9ng Page
+Landing Page
